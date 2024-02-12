@@ -1,2 +1,2 @@
 # latihan-branch
-BLING BANG BANG BARN
+BLING BANG BANG BERN
