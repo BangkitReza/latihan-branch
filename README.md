@@ -1,2 +1,2 @@
 # latihan-branch
-BLING BANG BANG BORN
+BLING BANG BANG BARN
